@@ -4,18 +4,18 @@
 <h3>Corredor das famosinhas!
 
 
-Allana Bernardo:É bonita mas ginga muito,se exibe parece celebridade assim que brinca com famosinhos se acha muito sua vaca sem leite.
+  </p>Allana Bernardo:É bonita mas ginga muito,se exibe parece celebridade assim que brinca com famosinhos se acha muito sua vaca sem leite.
 
-Elk Gisel:Sua feia,puta,se exibe tipo o país é dela,corpo parece que lhe engomaram com ferro,gosta de ficar com rapazes,sua puta de merda.
+</p>Elk Gisel:Sua feia,puta,se exibe tipo o país é dela,corpo parece que lhe engomaram com ferro,gosta de ficar com rapazes,sua puta de merda.
 
-Nicole rafael:Sua escura,preta tipo carvão se acha muito,enquanto é uma pobre que brinca com quem tem dinheiro sua interreseira de merda.
+</p>Nicole rafael:Sua escura,preta tipo carvão se acha muito,enquanto é uma pobre que brinca com quem tem dinheiro sua interreseira de merda.
 
-Emma carimo:Sua feia,com cara de bubuta,falas muito tipo somos teus amigos,sua putinha da zona.
+</p>Emma carimo:Sua feia,com cara de bubuta,falas muito tipo somos teus amigos,sua putinha da zona.
 
-Kawanga Ándre:Sua vacabunda,sem dinheiro,ginga muito pq tem dinheiro,veste tipo patricinha.sua vaca.
+</p>Kawanga Ándre:Sua vacabunda,sem dinheiro,ginga muito pq tem dinheiro,veste tipo patricinha.sua vaca.
 
-Shelsea Langa:Sua tabúa de merda,só é bonita mas corpo,parece de madeira,ginga muito tipo é gostosa,sua cadela.
-toxiccsimp's profile picture
+</p>Shelsea Langa:Sua tabúa de merda,só é bonita mas corpo,parece de madeira,ginga muito tipo é gostosa,sua cadela.
+
 
 
 
